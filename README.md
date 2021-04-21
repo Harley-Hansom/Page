@@ -1,6 +1,5 @@
 # 野比三石
 ## 网址发布页
-<br />
 搜索聚合：<https://www.ybss.top/>
 <br />
 开放网盘：<https://pan.ybss.top/>
