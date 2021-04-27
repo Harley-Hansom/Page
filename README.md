@@ -7,6 +7,8 @@
 <br />
 博客：<https://blog.ybss.top/>
 <br />
+音乐：<https://music.ybss.top/>
+<br />
 下载加速：<https://d.ybss.top/>
 <br />
 优惠券：<https://in52.shop/>
