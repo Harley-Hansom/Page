@@ -11,7 +11,7 @@
 <br />
 下载加速：<https://d.ybss.top/>
 <br />
-优惠券：<https://in52.shop/>
+短链接：<https://dwz.ybss.top/>
 <br />
 视频解析：<https://v.ybss.top/>
 <br />
